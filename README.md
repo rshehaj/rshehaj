@@ -16,4 +16,4 @@ Full-stack developer. I build and run production web products end to end: backen
 
 **Get in touch**
 
-[LinkedIn](https://www.linkedin.com/in/rinald-shehaj-b78951180/)
+📧 [rinaldshehaj@outlook.com](mailto:rinaldshehaj@outlook.com) · [LinkedIn](https://www.linkedin.com/in/rinald-shehaj-b78951180/)
